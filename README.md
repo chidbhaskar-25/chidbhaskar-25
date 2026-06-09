@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **vu.241fa23085@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/1xMn_tVrnMbch3gFksuaQpfMoNT5_q7Il/view?usp=drivesdk](https://drive.google.com/file/d/1xMn_tVrnMbch3gFksuaQpfMoNT5_q7Il/view?usp=drivesdk)](https://drive.google.com/file/d/1xMn_tVrnMbch3gFksuaQpfMoNT5_q7Il/view?usp=drivesdk)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1xMn_tVrnMbch3gFksuaQpfMoNT5_q7Il/view?usp=drivesdk]](https://drive.google.com/file/d/1xMn_tVrnMbch3gFksuaQpfMoNT5_q7Il/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
